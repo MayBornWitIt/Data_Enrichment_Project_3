@@ -7,3 +7,19 @@ Author: Maybelline Monge
 
 
 ## **Project Objective**
+
+
+## **Dataset Description**
+
+
+## **Analytical Insights**
+
+
+## **Summary & Recommendation**
+
+
+## **Contact Information**
+
+For collaborative opportunities direct communications to may.george.mg@gmail.com
+
+LinkedIn: https://www.linkedin.com/in/maybelline-bornwithit-george

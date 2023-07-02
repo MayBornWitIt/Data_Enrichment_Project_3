@@ -6,19 +6,19 @@
 Author: Maybelline Monge
 
 
-## **Project Objective**
+## **PROJECT OBJECTIVE**
 
 
-## **Dataset Description**
+## **DATASET DESCRIPTION**
 
 
-## **Analytical Insights**
+## **ANALYTICAL INSIGHTSs**
 
 
-## **Summary & Recommendation**
+## **SUMMRY & RECOMMENDATION**
 
 
-## **Contact Information**
+## **CONTACT INFORMATION**
 
 For collaborative opportunities direct communications to may.george.mg@gmail.com
 
